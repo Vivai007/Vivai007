@@ -2,7 +2,8 @@
 
 😊 I am Vaibhavi Bhalgamadia and my user id is Vivai007.
 
-📫 How to reach me: vaibhavi.bhalgamadia@gmail.com
+📫 How to reach me: vaibhavi.bhalgamadia@gmail.com | https://www.linkedin.com/in/vaibhavi-bhalgamadia/ 
+
 😄 Pronouns: she/her
 
 ⚡ Fun fact: Vivid traveller✈️🧳, cooking🍳🍽️, reading📖, music🎼🎼
